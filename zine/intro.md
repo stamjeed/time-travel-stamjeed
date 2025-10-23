@@ -1,1 +1,2 @@
-Welcome to our mysterious time machine project!
+Welcome to our ultimate time machine zine — combining creativity and collaboration!
+
